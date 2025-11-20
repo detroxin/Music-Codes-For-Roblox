@@ -2,6 +2,8 @@
 > Ссылки:
 >
 > Roblox Community: https://www.roblox.com/communities/832610078
+>
+> Текущий проект - шутер на основе ACS
 
 > Список обновлён: 20.11.25
 >
