@@ -3,8 +3,6 @@
 >
 > Roblox Community: https://www.roblox.com/communities/832610078
 >
-> [IN DEV] Sneak & Steal (https://www.roblox.com/games/99992655181737/IN-DEV-Sneak-Steal)
->
 > [🎙️VC] [Relapse] Fog. Landscape. (https://www.roblox.com/games/109315870636436/VC-Relapse-Fog-Landscape)
 
 > Список обновлён: 20.09.25
