@@ -2,8 +2,6 @@
 > Ссылки:
 >
 > Roblox Community: https://www.roblox.com/communities/832610078
->
-> [🎙️VC] [Relapse] Fog. Landscape. (https://www.roblox.com/games/109315870636436/VC-Relapse-Fog-Landscape)
 
 > Список обновлён: 20.09.25
 >
